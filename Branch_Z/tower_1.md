@@ -1,6 +1,6 @@
-## The Tower
+## The Tower [CONTAINS MENTION OF THE FIVE, OF WHICH IS NOW REMOVED IN THE CURRENT RELEASE]
 
-Betty Bergeron stands at the foot of the pastel island. Pale foam laps at the pink sand as she rises out of her boat in rubber boots. The air is cool and dry, and the sun hangs before the horizon wondering if it should dip down slowly or duck in a long swipe. It's a tough decision for the flaming ball of gas, but physics demands decisons, and the earth makes it's move before the sun does. Betty stomps around the island a bit, but it's only until a few minutes has passed that her eyes begin to trail up the spiralling tower.
+Betty Bergeron stands at the foot of the pastel island. Pale foam laps at the pink sand as she rises out of her boat in rubber boots. The air is cool and dry. Meanwhile, the sun hangs before the horizon wondering if it should dip down slowly or duck in a long swipe. It's a tough decision for the flaming ball of gas, but physics demands decisons, and the earth makes it's move before the sun does. Betty stomps around the island a bit, but it's only until a few minutes has passed that her eyes begin to trail up the spiralling tower.
 
 "Ladon is up there," she says in dismay.
 
