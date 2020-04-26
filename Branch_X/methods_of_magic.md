@@ -11,7 +11,7 @@ Class Magic: Magic that is directly tied to the class of the person. Class Magic
 
 Prism Magic: Magic that only changes the universe from the time it's wished. 
 
-Wish Magic: Magic that has the potential to change the universe in a retrocausal way (e.g. "I wish for humans to bleed honey").
+Wish Magic: Magic that has the potential to change the universe in a retrocausal way (e.g. "I wish for humans to bleed honey"). Often contained in artifacts like precious jewels or even Class Items.
 
 Null/Void Magic: Not a "true" method of magic, but still noteworthy enough for it's usefulness in counteracting all known magic.
 
