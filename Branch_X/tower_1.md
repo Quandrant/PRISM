@@ -1,10 +1,13 @@
-## The Tower [Potential member of the Color Arc]
+## The Tower
 
-Betty Bergeron stands at the foot of the pastel island. Pale foam laps at the pink sand as she rises out of her boat in rubber boots. The air is cool and dry. Meanwhile, the sun hangs before the horizon wondering if it should dip down slowly or duck in a long swipe. It's a tough decision for the flaming ball of gas, but physics demands decisons, and the earth makes it's move before the sun does. Betty stomps around the island a bit, but it's only until a few minutes has passed that her eyes begin to trail up the spiralling tower.
+[This is an early draft of an entry within the potential Boxcutter Slowdance/Colors Arc.]
+
+
+Betty Bergeron stands at the foot of the pastel island. Pale foam laps at the pink sand as she rises out of her boat in rubber boots. The air is cool and dry. Behind her, the sun hangs before the horizon, wondering if it should dip down slowly or duck in a long swipe. It's a tough decision for the flaming ball of gas, but physics demands decisons. The earth makes it's move long before the sun does, and so begins the sunset. Betty stomps around the island a bit, but it's only until a few minutes has passed that her eyes trail up the spiralling tower.
 
 "Ladon is up there," she says in dismay.
 
-It's honestly ridiculous how he was captured so easily. After all the adventures they've had together, Ladon should have known better than to unsuccessfully wrangle with the Colors. *Alone*. Most of Ladon and Betty's encounters with them tend to end in narrowly-accomplished escapes. She'll have to send in a complaint ticket to them so as to let Ladon struggle a bit before they inevitably take him somewhere. Not that a collective mess of sentient, incarnated colors would care much for a complaint ticket anyhow, but still.
+It's honestly ridiculous how he was captured so easily. After all the adventures they've had together, Ladon should have known better than to unsuccessfully wrangle with the Colors. *Alone*. Most of the duo's encounters with the Colors so far tend to end in narrowly-accomplished escapes. A small puff escapes the corner of her mouth--she'll have to send in a complaint ticket to them so as to let Ladon struggle a bit before they inevitably take him somewhere. Not that a collective mess of sentient, incarnated colors would care much for a complaint ticket anyhow, but still.
 
 Tired from the trip, Betty plops down onto the sand and turns to face the setting sun. The sight of the rose sand and the milky white water floods her eyes. It's not a very good sunset. Rather than the multifaceted spectacle back at her apartment she's grown to love, there's only a gradient from blue to darker blue here. A string of white dots floats gently through the sky. 
 
