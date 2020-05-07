@@ -1,0 +1,15 @@
+## Narrative disconnect: A phenomenon
+
+This is a mechanism that was first thought of in the discontinued Approaching Nirvana project wherein a character temporarily or permanently becomes disconnected from the narrative. (Not to be confused with canon.) I had difficulty employing this mechanism in the AN project, because I had to work with the constraints of the Homestuck narrative. Now that I'm working with PRISM, however, I have free reign over how this all works.
+
+In narrative disconnect, the character gives up the ability to contribute to the narrative and they become a kind of ghost/rider/member of the metanarrative audience that's pulled along by the "eye" of the narrative. It is *not* becoming the all-seeing eye. It is *not* the ultimate self (as such a concept does not exist within PRISM) and aggregating the experiences of all your other selves. It is watching a movie, except you're physically present with the camera throughout every one of the scene shifts.
+
+**Example...**
+
+Azalea Megido is temporarily unstuck from the narrative. She no longer participates on the "stage". "Under" her, the scene moves rapidly and with gusto; there's a long shot of Ambrose and Crow talking to each other as they work on their Lands' quests. The conversation and Azalea moves to Hawthorne, and she can be seen with a blindfold navigating the mirror maze surrounding her planet. It only lasts for a few seconds, though, and the story cuts back to Ambrose and Crow. They continue talking, Ambrose goes silent, the camera goes to Crow blinking a bit at the static screen. Crow then begins to panickedly type into the chat. The camera and Azalea goes to Ambrose, who is lying unconscious in a ditch. Azalea panicks at the scene, wriggles her immaterial body around a little bit, and re-sticks herself back into the narrative before the camera can move again. She quickly goes to Ambrose's side and flips him over. Ambrose is bleeding heavily from the head; Azalea concentrates deeply and unsticks herself from the narrative again. As Ambrose bleeds out on his planet, the camera moves to Crow sending messages to Azalea and Hawthorne. Crow sits down, looks out at Skaia, and exhales deeply. "I wonder where Azalea is," he says, and the camera goes to Azalea's house, which is strangely abandoned. The scene shakes a bit, almost in confusion at the disappearance of Azalea, but the lady in charge takes the advantage and pops back into her house. She grabs the medical supplies, chucks it in her sylladex, pops out of canon, and hopes to whatever gods are out there to let her get to Ambrose in time.
+
+Spoiler: She does, but only barely. Ambrose has lost some mental capacity and is forgetful after the incident. The others meet and they decide to lead for themselves, meeting every 10 game ticks, and they continue playing. It's only until Ambrose ascends near the end of the session that this damage is reversed.
+
+**Why does this matter?**
+
+I'm thinking of having Ariadne journey to the SEE\*R Laboratory as the Colors arc continues. Betty desperately needs help; the Colors have come back out of hiding and are chasing her. 
