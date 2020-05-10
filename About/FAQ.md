@@ -61,6 +61,6 @@ What about them?
 
 Snark aside, PRISM is now fully isolated from the memetic influences of other works. There will be no investigation of pataphysics or memetics in this story.
 
-While the d.bot constructs are uniquely powerful artifacts in their own right, they are still anchored to their home narrative--which has been completed for some time now! Same goes for the Five. They make good villains, sure, but they're hard to handle.
+While the d.bot constructs (Roman silver, Nazi gold, White Hallway, obsidian knife, canary) are uniquely powerful artifacts in their own right, they are still anchored to their home narrative--which has been completed for some time now! Same goes for the Five. They make good villains, sure, but they're hard to handle.
 
 I will be retroactively changing the current PRISM Branches to meet this criteria.
