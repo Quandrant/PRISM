@@ -12,4 +12,4 @@ Spoiler: She does, but only barely. Ambrose has lost some mental capacity and is
 
 **Why does this matter?**
 
-I'm thinking of having Ariadne journey to the SEE\*R Laboratory as the Colors arc continues. Betty desperately needs help; the Colors have come back out of hiding and are chasing her. 
+It could be a good deus ex machina; Betty is in trouble, Ariadne strikes the SEE\*R device and unsticks Betty from the narrative, allowing her to move practically anywhere through the narrative.
