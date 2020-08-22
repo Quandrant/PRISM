@@ -1,6 +1,6 @@
 #### What is PRISM?
 
-PRISM is a GitHub repository containing the many "branches" and extra "leaves" of the SEE\*R writing project. PRISM serves to simplify the writing project and make it more accessible to my own skills.
+PRISM is a GitHub repository containing the many "branches" and extra "leaves" of the SEE\*R writing project. PRISM serves to simplify the writing project and make it easier to write.
 
 PRISM is also the external narrative name for the mechanism by which all the branches and leaves of the SEE\*R Project are connected together into a cohesive whole.
 
@@ -14,7 +14,7 @@ SEE\*R was also external narrative name for the entire project, but is now depre
 
 #### What are leaves and branches?
 
-Prior to PRISM, there were "branches" that were alternative forms of the source material. They are the logical application of a computer science concept over to literature. PRISM may reduce the number of branches listed, or make them very small.
+Prior to PRISM, there were "branches" that were alternative forms/derivatives of the source material, leading to a very weak canon interpretation of things. PRISM may reduce the number of branches listed, or make them very small.
 
 Branch X was an internally "lost" branch containing the source material itself and planned to be available only to me. It was written in second person and hosted in a Discord channel.
 
@@ -26,7 +26,7 @@ Branch C was a podcast investigating the SEE\*R Project of Ariadne's world and w
 
 Branch D was a screenplay written by the character Ariadne Cordova, who was at the time the lone member of the in-universe SEE\*R Project. It was also hosted on Wattpad, but with radical stylistic changes to make it look more like a screenplay.
 
-Leaves are extra scenes or chapters that don't belong in any (one) branch. In the event there are more leaves to handle, they will be moved to another repository for convenience.
+Leaves are extra scenes or chapters that don't belong in any (one) branch, or even the PRISM narrative at all. In the event there are too many leaves to handle, they will be moved to another repository for convenience.
 
 #### What about darren.bot?
 
@@ -34,11 +34,9 @@ darren.bot is no more. Interestingly, this revamp also widens the divide between
 
 #### So what's changed with PRISM?
 
-Some things.
-
-1. The SEE\*R is less of a communication platform and more of a one-way looking glass. It's still a terminal, though.
+1. The SEE\*R is more of a one-way looking glass than reasonable communication. It's still a terminal hooked up to a hulking machine, though.
 2. Betty is still functionally an avatar for the SEE\*R, but is no longer bound to the rules of the terminal recording her every move.
-3. Ariadne's influence on Betty's universe is both enhanced and diminished; she can only directly communicate with Betty through a decrepit landline in her house.
+3. Ariadne's influence on Betty's universe is both enhanced and diminished; she can only directly communicate with Betty through a decrepit landline in her attic.
 4. The diversity of SEE\*R's mediums is no more; everything will be on GitHub in the form of Markdown files.
 5. SEE\*R is no longer the name for the entire narrative, PRISM is.
 6. PRISM isn't an acronym. (Hopefully.)
@@ -49,18 +47,14 @@ I'll tell you personally once we have a chance to meet in there. (Yes, that was 
 
 #### What about the Space Between?
 
-Excellent question. The Space Between is unchanged. The blue sky and wheat field still sways, the lone cloud still hangs, and Hawthorne Kalbraxas's ghostly essence still remains.
+Great question. The Space Between is unchanged from the d.bot interpretation of it (blue sky, wheat field, one cloud, Hawthorne's ghost). *This is by design.*
 
-*This is by design.*
-
-The Space Between is it's own narrative with it's own rules. It's a small list, but one that even I have to follow. Because of this, the Space Between cannot be affected by changes in the structure of any single narrative.
+The Space Between is it's own narrative with it's own rules. It's a small list, but one that even I have to follow. Because of this, the Space Between cannot be affected by changes of any magnitude in any single narrative.
 
 #### Will the d.bot constructs and the Five still be active in PRISM?
 
-What about them?
+Sorry, no. PRISM is now fully isolated from the direct memetic influence of other works. Investigations of pataphysiomemetics aren't needed here.
 
-Snark aside, PRISM is now fully isolated from the memetic influences of other works. There will be no investigation of pataphysics or memetics in this story.
-
-While the d.bot constructs (Roman silver, Nazi gold, White Hallway, obsidian knife, canary) are uniquely powerful artifacts in their own right, they are still anchored to their home narrative--which has been completed for some time now! Same goes for the Five. They make good villains, sure, but they're hard to handle.
+While the d.bot constructs (Roman silver, Nazi gold, White Hallway, obsidian knife, canary) are uniquely powerful in their own right, they are still anchored to their home narrative--which has been completed for some time now! For this reason, the Five of pre-PRISM narrative also aren't going to be in the current narrative.
 
 I will be retroactively changing the current PRISM Branches to meet this criteria.
