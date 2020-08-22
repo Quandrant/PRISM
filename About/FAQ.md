@@ -28,9 +28,9 @@ Branch D was a screenplay written by the character Ariadne Cordova, who was at t
 
 Leaves are extra scenes or chapters that don't belong in any (one) branch, or even the PRISM narrative at all. In the event there are too many leaves to handle, they will be moved to another repository for convenience.
 
-#### What about darren.bot?
+#### What about d.bot?
 
-darren.bot is no more. Interestingly, this revamp also widens the divide between darren.bot and PRISM, as this "is a story to be told, not a game to be played with aimlessly".
+d.bot is no more. Interestingly, this revamp also widens the divide between d.bot and PRISM, as this "is a story to be told, not a game to be played with aimlessly".
 
 #### So what's changed with PRISM?
 
