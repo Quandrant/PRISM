@@ -2,6 +2,8 @@
 
 _[Universe B]_
 
+**Note:** With the recent change of scope to Universe B, much of this information may not be relevant. I'm putting this in /Leaves/.
+
 Class Magic: Magic that is tied to the class of the person. Class Magic acts on the information (quantifiable or qualifiable) in the universe, but most expressions of Class Magic are limited to a specific item rather than the whole.
 
 1. Seers have Sight (Division??). They derive information. They use glasses.
