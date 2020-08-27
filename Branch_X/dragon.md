@@ -12,20 +12,24 @@ It would've been so easy to fall, Ladon thought over the chopping water. The lam
 
 "Yeah, I would," Orange said aloud. "But I like to think more about your safety than your lust for escaping."
 
-Ladon stopped struggling for a moment to think of a reply. Something acrid, maybe? Today seems a little bitter, though... "You haven't been doing that very well if I want to chuck myself off the railing everytime I remember I'm your *prisoner*."
+Ladon stopped struggling for a moment to think of a reply. Something acrid, maybe? Today seems a little bitter, though... "You haven't been doing that very well if I want to chuck myself outside everytime I remember I'm your *prisoner*."
 
-"You're not a prisoner." Their grasp on Ladon's body falls away in an instant, as if they were embarassed.
+"You're not a prisoner." Their grasp on Ladon's body fell away in an instant, as if they were embarassed.
 
-"Should I say bargining chip instead?"
+"Should I say bargining chip instead?" A sting of irritation tugged at his navel, then. Ladon feels almost guilty for saying that, but gets up to face them.
 
-A sting of irritation tugged at his navel, then. Ladon feels almost guilty for saying that, but gets up to face them. "We both know Betty would raze me and this lighthouse to the ground if I even mentioned your name, so that's off the table."
+"We both know Betty would raze me and this lighthouse to the ground if I even mentioned your name, so that's off the table."
 
 "So what am I, Orange?"
 
-In an voice cold enough to freeze Ladon's anger, they respond, "Someone who made a mistake."
+In an voice cold enough to freeze Ladon's anger, they responded, "Someone who made a mistake."
 
-The roof begins to turn, and noting the dangerous situation, Ladon scampers down to the next floor into his room. He shuts the door with a click. Seeing the moon rise so fast outside coupled with the moving floor would've been something close to enchanting if he didn't know he pissed off his universe's equivalent of a celestial being. Why wouldn't they be irritated? The two of them have had this argument for weeks and it never went anywhere. It was only natural that the other person's patience would fade out someday. The one uncertainty was who.
+Then things started to go fuzzy. Ladon remembers the roof beginning to turn and warp as the night sky and the moon rose up hours before dawn. He definitely dashed past the other person and scampered down the next floor into his room. All of those visuals would've been something close to enchanting if he didn't realize he pissed off his universe's equivalent of a celestial being. Why wouldn't they be irritated? The two of them have had this argument for weeks and it never went anywhere. Ladon never bothered to meet at the middle like Orange did. It was only natural that the other person's patience would fade out someday--the one uncertainty was who.
 
-So now he's under the sheets staring around his wobbly room. The dimensions of the small area never came back right but that was the least of his problems. Orange weighed on his mind like a sack of bricks, and they didn't need to be there discorporating around for him to worry. It shouldn't take someone like them more than a minute to get the lamp from the ocean floor.
+So now he's under the sheets staring around his wobbly room. The dimensions of the small area never came back right but that was the least of his problems. Orange weighed on his mind like a sack of bricks, and they didn't need to be there discorporating around for him to worry. It shouldn't take someone like them more than a minute to get the lamp off from the ocean floor, but it's been an hour already. 
 
-A crack of dry lightning strikes the glass hull of the building and Orange materializes in the air of the room. The raw power is crushing, but they seem more occupied with putting down the pristine lamp on the desk. They make a motion to light the device
+A crack of dry lightning strikes the glass hull of the building, illuminating Orange's floating figure near the edge of the room. How long have they been there judging Ladon as he rolls through through the shock of the events earlier? But the raw power is crushing and so he turns to the soft sound of fabric moving. Orange is occupied with putting down the pristine lamp on the desk. They go through the motions to light the device, but stops midway with an all too human sigh. The room is still dark save for the small glowing embers in their hair. A small nudge of regret pokes it way towards the front of Ladon's mind, and Orange opens their mouth to speak, but the dragon is the one to put words into the air.
+
+"I'm sorry."
+
+Orange, for all their patience, was never really mad at the person in bed across from them. It was frustrating seeing their guest try to forget all about Betty and 
