@@ -14,4 +14,4 @@ Originally the guardian of the Hesperides, Ladon is an 18 year old immortal and 
 
 ### Orange (Universe B)
 
-The literal incarnation of the color orange--and a sharp one at that! Though benevolent, he is still cunning and manipulative enough to be a hazard to the town. Orange is known for his mastery of telekinesis, but it is only when Ladon makes the contract with him that his potent telepathic powers are shown. He has a difficult relationship with Ladon, but it's only after the lamp incident that the pair start to make amends and even try to find a way to get the dragon out. (No, I have no idea how to write a redemption arc for him.)
+The literal incarnation of the color orange--and a sharp one at that! Though benevolent, he is still cunning and manipulative enough to be a hazard to the town. Orange has a mastery over telekinesis but his mild telepathic powers are nothing to scoff at either. He has a difficult relationship with Ladon, but it's only after the lamp incident that the pair start to make amends and even try to find a way to get the dragon out. (No, I have no idea how to write a redemption arc for him.)
