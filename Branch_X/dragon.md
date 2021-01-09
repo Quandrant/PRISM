@@ -4,6 +4,11 @@
 
 Ladon was sprawled out in bed.
 
+The radial wooden planks above him yawned and creaked in time with his breathing. It was dark, and although the moon still shone bright enough to caress the shadows lining the inside of his room, he couldn't quite discern where one edge of the planks ended and where the other began. He knew in the morning he could count them with ease, but for tonight, he indulged in sleepy curiosity; how many slices of this circle of uncertain infinitesimals would he need to flick his eyes over, back and forth, to sate the desirous lull inside him? 
+
+Orange was incorporeal.
+
+
 His eyes flicked around his slice of the cylinder. It was dark out but the moon still shone bright enough to cast strange shadows along the inside of the room. Normally there would be a small lamp next to his bed, but then he remembers that it's somewhere outside at the bottom of the tower after he hurled it out the window in a fit of spite. Orange was--too understanding, and he couldn't take it.
 
 "Why can't you just hate me?" Ladon yelled down the stairs. He would've breathed fire then to seal the deal, but the thick ocean air inside the enclosure prevented any chance of that. The unlit lamp was clutched to his chest, stolen from Orange's ethereal grasp. He could feel the disappointment echo behind him. He couldn't think much about it, though, since a minute later he was already at the top of the lighthouse and...
