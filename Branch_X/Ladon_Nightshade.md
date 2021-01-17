@@ -4,9 +4,12 @@
 
 Ladon was sprawled out in bed.
 
-The radial wooden planks above him yawned and creaked in time with his breathing. It was dark, and although the moon still shone bright enough to caress the shadows lining the inside of his room, he couldn't quite discern where one edge of the planks ended and where the other began. He knew in the morning he could count them with ease, but for tonight, he indulged in sleepy curiosity; how many slices of this circle of uncertain infinitesimals would he need to flick his eyes over, back and forth, to sate the desirous lull inside him? 
+The radial wooden planks above him yawned and creaked in time with his breathing. It was dark, and although the moon still shone bright enough to caress the shadows lining the inside of his room, he couldn't quite discern where one edge of the planks ended and where the other began. He knew in the morning he could count them with ease, but for tonight, he indulged in sleepy curiosity; how many slices of this circle of uncertain infinitesimals would he need to flick his eyes over, back and forth, to sate the desirous lull inside him? He went around and around, letting Troxler's fading blend the edges into an eigengrau veil.
 
-Orange was incorporeal.
+The ocean sighed for him, then. A great heave of water fell on the lapels of the lighthouse. 
+
+The ocean sighed for him. A great heave of water fell on the lapels of the base of the lightouse. For all the light that shone outward above him, they still relied on a
+
 
 
 His eyes flicked around his slice of the cylinder. It was dark out but the moon still shone bright enough to cast strange shadows along the inside of the room. Normally there would be a small lamp next to his bed, but then he remembers that it's somewhere outside at the bottom of the tower after he hurled it out the window in a fit of spite. Orange was--too understanding, and he couldn't take it.
